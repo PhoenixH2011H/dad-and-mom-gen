@@ -1,4 +1,6 @@
 ## GET MOMS TODAYYYYY
+WARNING, NO MINORS.. I MEAN IT!!!
+
 
 You came to the wrong place :)
-# [FREE MOM/DAD GENERATOR!!!](https://pornhub.com/)
+# [CLICK ME FOR A FREE MOM/DAD GENERATOR!!!](https://pornhub.com/)
