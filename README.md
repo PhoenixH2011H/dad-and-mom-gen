@@ -1,7 +1,6 @@
 # (WARNING, NO MINORS.. I MEAN IT!!!)
 
-## GET MOMS TODAYYYYY
-WARNING, NO MINORS.. I MEAN IT!!!
+## GET MOMS AND DADS TODAYYYYY
 
 
 You came to the wrong place :)
